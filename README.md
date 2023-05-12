@@ -1,0 +1,2 @@
+# ProjectStrukdat
+Mike, Naufal, Rayyan.
